@@ -1,2 +1,0 @@
-___
-![MAP01-CHFJPY](./MAP01-CHFJPY-1.png)
